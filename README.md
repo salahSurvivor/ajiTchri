@@ -1,1 +1,1 @@
-# Fuck You 3tini la access ya l9adib
+Wa mnin an3tik had acceess wa sarbi goliya rah deghya tan3asab
